@@ -38,6 +38,6 @@ The noteebook includes 2 charts to visualiz
 
 ## Video Presentation
 
-Video Link: 
+Video Link: https://yearuptemp-my.sharepoint.com/:p:/g/personal/asago_my_yearupunited_org/IQBz5WHSlUqtRISv0pjiXYRZAUk4qBN8rSEt9y7fHbNsvWI?e=ssYn0J 
 
 ---
